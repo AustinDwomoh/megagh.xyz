@@ -1,1 +1,1 @@
-I am trying to create a website for the MEGA organization
+Lost intrest in this guy but first ever working project
